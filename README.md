@@ -1,6 +1,6 @@
 # 填空题www秒懂2024
 
-<a href="https://h8t8.top ">→→→点此进入最新入口←←←</a>
+<a href="https://6h8k.top ">→→→点此进入最新入口←←←</a>
 
 
 
